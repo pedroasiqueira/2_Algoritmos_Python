@@ -1,1 +1,0 @@
-# algo a maisgit pu
